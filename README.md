@@ -1,4 +1,4 @@
-# 天文学习指“北” / Astronomy studying "duige"
+# 天文学习指“北” / Astronomy studying "dniga"
 
 目标：
 给自己操蛋的咸鱼生活找个有意义的事情做。
